@@ -1,7 +1,7 @@
 # SOFTSKILL
 
 MODULE 1
-=> Personal Information : 
+=> Personal Information : https://www.youtube.com/shorts/OxkturqmW40
 
 
 MODULE 2
